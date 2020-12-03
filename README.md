@@ -1,0 +1,1 @@
+# Veri-Tabani-Tasarimi-Odevi-Umut-Can-Bilgisayar-Programciligi-20MY03007
